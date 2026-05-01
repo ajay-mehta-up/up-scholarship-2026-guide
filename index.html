@@ -1,0 +1,1 @@
+# up-scholarship-2026-guide
